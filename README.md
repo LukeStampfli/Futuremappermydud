@@ -1,1 +1,1 @@
-![alt-text](https://gfycat.com/potabledarkakitainu-chika-fujiwara-chika-dance)
+![alt-text](https://gfycat.com/potabledarkakitainu-chika-fujiwara-chika-dance.gif)
